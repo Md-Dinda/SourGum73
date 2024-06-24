@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SourGum73
+- 👋 Hi, I’m @Md-Dinda
 - 👀 I’m interested in Math and Data Analyst
 - 🌱 I’m currently learning Data Scince in Digital Skola Bootcamp
 - 📫 You can visit my LinkedIn profile on https://www.linkedin.com/in/ni-made-dinda-pratiwi1/
